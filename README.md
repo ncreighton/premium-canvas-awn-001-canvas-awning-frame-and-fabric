@@ -1,0 +1,2 @@
+# premium-canvas-awn-001-canvas-awning-frame-and-fabric
+Tired of guesswork and mismatched fittings when assembling your canvas awning? This Notion template eliminates the chaos of tracking frame parts, fabric pieces, and installation steps.  The Canvas Awning Frame and Fabric Fitting Log solves the common pain of measuring errors and forgotten details by giving you a structured space to record every dim
